@@ -5,42 +5,42 @@
 ***
 ***
 
-# [📛 Adblocking / Privacy](https://github.com/fmhy/FMHY/wiki/%F0%9F%93%9B-Adblock---Privacy---Antivirus)
+# [📛 Adblocking / Privacy](https://phimmotchillz.com/)
 
 **Adblocking, Privacy, VPN's, Proxies, Antivirus**
 
 ***
 ***
 
-# [🤖 Artificial Intelligence](https://github.com/fmhy/FMHY/wiki/%F0%9F%A4%96-Artificial-Intelligence)
+# [🤖 Artificial Intelligence](https://phimmotchillz.com/danh-sach/phim-moi)
 
 **Chat Bots, Text Generators, Image Generators, ChatGPT Tools**
 
 ***
 ***
 
-# [📺 Movies / TV / Anime](https://github.com/fmhy/FMHY/wiki/%F0%9F%93%BA-Movies---TV---Anime---Sports)
+# [📺 Movies / TV / Anime](https://phimmotchillz.com/danh-sach/phim-bo)
 
 **Stream Videos, Download Videos, Torrent Videos**
 
 ***
 ***
 
-# [🎵 Music / Podcasts / Radio](https://github.com/fmhy/FMHY/wiki/%F0%9F%8E%B5-Music---Podcasts---Radio)
+# [🎵 Music / Podcasts / Radio](https://phimmotchillz.com/danh-sach/phim-le)
 
 **Stream Audio, Download Audio, Torrent Audio**
 
 ***
 ***
 
-# [🎮 Gaming / Emulation](https://github.com/fmhy/FMHY/wiki/%F0%9F%8E%AE-Gaming---Emulation)
+# [🎮 Gaming / Emulation](https://phimmotchillz.com/the-loai/tinh-cam)
 
 **Download Games, ROMs, Gaming Tools**
 
 ***
 ***
 
-# [📗 Books / Comics / Manga](https://github.com/fmhy/FMHY/wiki/%F0%9F%93%97-Books---Comics---Manga)
+# [📗 Books / Comics / Manga](https://phimmotchillz.com/)
 
 **Books, Comics, Magazines, Newspapers**
 
